@@ -1,2 +1,3 @@
 # Hello viewer chill up
-## I cang
+## I can
+## Just take a shoot with my plug
